@@ -1,7 +1,7 @@
 ## welcome, anon. 
-***how deep down the rabbit hole are you willing to go..?*** :rabbit: 
+***how deep down the rabbit hole are you willing to go..?*** :rabbit2: 
 
-*see the sign :v:, follow the white rabbit* :rabbit2: 
+*see the sign :v:, follow the white rabbit* :rabbit: :rabbit2: 
 
 :v: --> :rabbit:
 <!--
