@@ -1,5 +1,6 @@
 ## welcome, anon. 
-***how deep down the rabbit hole are you willing to go..?***
+***how deep down the rabbit hole are you willing to go..?*** :rabbit:
+*follow the white rabbit* :rabbit2:
 
 <!--
 **cherenkova22/cherenkova22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
