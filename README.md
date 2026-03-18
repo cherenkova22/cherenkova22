@@ -13,7 +13,7 @@
 ## playground 
 - decentralized research infra
 - crypto-native data provenance
-- AI agents
+- decentralized ai agents 
 - tokenized knowledge systems
 <!--
 **cherenkova22/cherenkova22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
