@@ -11,12 +11,12 @@
 - agents; models; data pipelines for physical reality
 
 ## playground 
-- decentralized research infra
-- crypto-native data provenance
-- decentralized ai agents 
-- tokenized knowledge systems
+-> decentralized research infra
+-> crypto-native data provenance
+-> decentralized ai agents 
+-> tokenized knowledge systems
 
-find https://github.com/blue-light-lab :rabbit2: :crystal_ball:
+find us -> https://github.com/blue-light-lab :rabbit2: :crystal_ball:
 <!--
 **cherenkova22/cherenkova22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
