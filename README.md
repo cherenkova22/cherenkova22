@@ -1,5 +1,5 @@
 ## welcome, anon. 
-***how deep down the rabbit hole are you willing to go..?*** :rabbit2: 
+***how deep down the rabbit hole are you willing to go..?*** :rabbit2: :crystal_ball:
 
 *see the sign :v:, follow the white rabbit* :rabbit: :rabbit2: 
 
@@ -16,7 +16,7 @@
 - decentralized ai agents 
 - tokenized knowledge systems
 
-find https://github.com/blue-light-lab :rabbit2:
+find https://github.com/blue-light-lab :rabbit2: :crystal_ball:
 <!--
 **cherenkova22/cherenkova22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
