@@ -1,5 +1,5 @@
 ## welcome, anon. 
-***how deep down the rabbit hole are you willing to go..?*** :rabbit2: :crystal_ball:
+***how deep down the rabbit hole are you willing to go..?*** :rabbit2:
 
 *see the sign :v:, follow the white rabbit* :rabbit: :rabbit2: 
 
